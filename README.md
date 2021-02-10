@@ -1,3 +1,7 @@
 Distribuidora de Bebidas
 
-# distribuidora-de-bebidas
+André Alves
+
+https://www.linkedin.com/in/andrealves8/
+
+https://github.com/andrealves8
